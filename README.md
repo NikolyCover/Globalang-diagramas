@@ -1,0 +1,1 @@
+# Globalang-diagramas
